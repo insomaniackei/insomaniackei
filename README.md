@@ -9,7 +9,6 @@
 <i> ⟢ Feel free to interact if you want, I’m enjoying be a listener than the yapper ( obviously too silly to talk ) XP</i><br></br>
 <i> ⟢ Mostly afk to draw/study/play or simply I’m being shy and even don’t know how to talk (*´ー｀*) </i><br><br>
 <i> ⟢ Well highkey hyping OCs, dying from the university/srs </i><br><br>
-<img alt="silly duo" height="340" src="https://github.com/user-attachments/assets/c9ec0b2a-3b47-4a62-b574-eae6c32db570" /> <br></br>
 <div align = left>
 
 **DO NOT INTERACT ⚠︎**
