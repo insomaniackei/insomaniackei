@@ -1,5 +1,3 @@
-<p align="center">
-Sigh, gonna rebuild it soon
 <details>
 
 <summary><b> 𝑻𝒂𝒑 𝒕𝒉𝒆𝒓𝒆 𝒊𝒇 𝒚𝒐𝒖 𝒄𝒂𝒓𝒆 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆 </b></summary>
@@ -11,8 +9,12 @@ Sigh, gonna rebuild it soon
 <div align = left>
 
 **DO NOT INTERACT ⚠︎**
-> ⌗ I don't have much DNI, be nice with me then I will be nice to you back, simple. If you're being rude with me or my friends, I will block you with no second thought
+> ⌗ https://dni-criteria.carrd.co/
+> 
+> ⌗ Anti/Proship discourse
+> 
 > ⌗ Those fake or make fun of mental illness
+> 
 > ⌗ Those like using slurs, normalize/romanticize IRL guro.
 <div align = center>
 
