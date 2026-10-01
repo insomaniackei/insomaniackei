@@ -13,9 +13,7 @@
 > 
 > ⌗ Anti/Proship discourse
 > 
-> ⌗ Those fake or make fun of mental illness
-> 
-> ⌗ Those like using slurs, normalize/romanticize IRL guro.
+> ⌗ Not so DNI, rather iwec if you’re heavily into: South Park, Creepypasta, Doki Doki Literature Club, Forsaken, Pretty Blood, WINX, Jujutsu Kaisen
 <div align = center>
 
 
