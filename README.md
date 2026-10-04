@@ -14,7 +14,7 @@
 > 
 > ⌗ Anti/Proship discourse
 > 
-> ⌗ Not so DNI, rather iwec if you’re heavily into: South Park, Creepypasta, Doki Doki Literature Club, Forsaken, Pretty Blood, WINX, Jujutsu Kaisen, Kpop Demon Hunter.
+> ⌗ Not so DNI, rather iwc if you’re heavily into: South Park, Creepypasta, Doki Doki Literature Club, Forsaken, Pretty Blood, WINX, Jujutsu Kaisen, Kpop Demon Hunter.
 <div align = center>
 
 
