@@ -3,10 +3,10 @@
 <summary><b> 𝑻𝒂𝒑 𝒕𝒉𝒆𝒓𝒆 𝒊𝒇 𝒚𝒐𝒖 𝒄𝒂𝒓𝒆 𝒂𝒃𝒐𝒖𝒕 𝒎𝒆 </b></summary>
 
 
-<i> ⟢ You will find me in global 18+ and Vietnamese servers. Mainly in roblox areas </i><br></br>
-<i> ⟢ I spend a lot of time even days to make the skins so PLEASE do not copy or heavy inspo them, you can ask me for some advices I don't mind </i><br><br>
-<i> ⟢ Mostly afk to draw/study/play or simply I’m being shy, have zero communication skill (*´ー｀*) </i><br><br>
-<i> ⟢ Well highkey hyping OCs/Madcom/Nico's Nextbots/3008/..., yet mostly dying from the university/srs </i><br><br>
+<i> ⟢ You will mainly find me in global 18+ and Vietnamese servers. Mainly in roblox/multi-fandoms areas </i><br></br>
+<i> ⟢ I spend a lot of time even days to just able to make a single skin, so PLEASE do not copy or heavy inspo them, you can ask me for some advices I don't mind </i><br><br>
+<i> ⟢ Mostly afk or offtab to draw/study/play or simply I’m being shy, have zero communication skill (*´ー｀*) </i><br><br>
+<i> ⟢ Well highkey hyping OCs/Madness Combat series/Nico's Nextbots/Evade/3008/..., yet mostly dying from the university/srs </i><br><br>
 <div align = left>
 
 **DO NOT INTERACT ⚠︎**
