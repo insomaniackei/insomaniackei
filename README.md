@@ -7,6 +7,7 @@
 <i> ⟢ I spend a lot of time even days to just to make a single skin, so PLEASE do not copy or heavy inspo them, you can ask me for some advices I don't mind </i><br><br>
 <i> ⟢ Mostly afk or offtab to draw/study/play or simply I’m being shy, have zero communication skill (*´ー｀*) </i><br><br>
 <i> ⟢ Well highkey hyping OCs/Madness Combat series/Nico's Nextbots/Evade/3008/..., yet mostly dying from the university/srs </i><br><br>
+<i> ⟢ You see my roblox account linked here right? Feel free to join the game with me ehe! </i><br><br>
 <div align = left>
 
 **DO NOT INTERACT ⚠︎**
